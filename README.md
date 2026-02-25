@@ -8,4 +8,4 @@ https://www.instagram.com/alighieri.asc (R.I.P)
 
 [twitter](https://x.com/b8nzF) (Watchlist)
 
-[youtube](https://m.youtube.com/@bostikdante) 
+[youtube](https://youtube.com/@bostikdante) 
