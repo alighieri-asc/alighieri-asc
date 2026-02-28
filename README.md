@@ -11,3 +11,5 @@ https://www.instagram.com/alighieri.asc (R.I.P)
 [youtube](https://youtube.com/@bostikdante) 
 
 [goodreads](https://www.goodreads.com/dantebtw )
+
+[librarything](https://www.librarything.com/profile/dante-asc)
