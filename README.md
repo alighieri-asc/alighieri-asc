@@ -1,8 +1,8 @@
 # about me
 
-[substack](https://www.substack.com/@cronistadobostil)
+https://www.instagram.com/alighieri.asc
 
-https://www.instagram.com/alighieri.asc (R.I.P)
+[substack](https://www.substack.com/@cronistadobostil)
 
 [gist](https://gist.github.com/alighieri-asc)
 
