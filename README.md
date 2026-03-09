@@ -2,8 +2,6 @@
 
 https://www.instagram.com/alighieri.asc
 
-[substack](https://www.substack.com/@cronistadobostil)
-
 [gist](https://gist.github.com/alighieri-asc)
 
 [twitter](https://x.com/b8nzF) (Watchlist)
