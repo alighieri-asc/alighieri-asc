@@ -1,16 +1,13 @@
-## Hi there 👋
+# about me
 
-<!--
-**alighieri-asc/alighieri-asc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[librarything](https://www.librarything.com/profile/dante-asc)
 
-Here are some ideas to get you started:
+[youtube](https://youtube.com/@bostikdante) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[chess.com](https://www.chess.com/member/dante_asc)
+
+[lichess](https://lichess.org/@/dante_asc)
+
+et gemas in novissimis, quando consumpseris carnes tuas et corpus tuum
+
+Proverbia V:XI
