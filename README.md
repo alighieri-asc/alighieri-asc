@@ -8,6 +8,4 @@
 
 [lichess](https://lichess.org/@/dante_asc)
 
-et gemas in novissimis, quando consumpseris carnes tuas et corpus tuum
-
-Proverbia V:XI
+No better friend, no worse enemy
