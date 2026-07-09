@@ -8,5 +8,6 @@
 
 [lichess](https://lichess.org/@/dante_asc)
 
+[steam](https://steamcommunity.com/profiles/76561199194301737/)
 
 allah souriya w bashar 
